@@ -1,0 +1,1 @@
+[Ableism and Language](https://www.autistichoya.com/p/ableist-words-and-terms-to-avoid.html)
