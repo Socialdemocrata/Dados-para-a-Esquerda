@@ -24,7 +24,13 @@ Housing Crisis:USA:https://inthesetimes.com/article/affordable-housing-crisis-ri
 
 Queda na taxa de lucro e exploração:https://thenextrecession.wordpress.com/2018/03/07/unam-1-the-profit-investment-nexus/
 
-Mental Health Crisis:https://www.who.int/news-room/fact-sheets/detail/mental-health-in-emergencies[https://www.lisboninstitutegmh.org/assets/files/Clemens%20Hosman.pdf](https://www.lisboninstitutegmh.org/assets/files/Clemens Hosman.pdf)[https://www.nami.org/mhstats
+Mental Health Crisis:
+
+1. Mental health in emergencies: https://www.who.int/news-room/fact-sheets/detail/mental-health-in-emergencies
+
+2. Socio-economic Crises and Mental Health: From Research to Action: https://www.lisboninstitutegmh.org/assets/files/Clemens%20Hosman.pdf
+
+3. Mental Health By the Numbers: https://www.nami.org/mhstats
 
 American Democracy at decline:
 
