@@ -2,6 +2,8 @@ General Inequality:https://inequality.org/facts/racial-inequality/Most
 
 ​	Europa:https://www.observatorio-das-desigualdades.com/indicadores/
 
+​	World’s billionaires have more wealth than 4.6 billion people: https://www.oxfam.org/en/press-releases/worlds-billionaires-have-more-wealth-46-billion-people
+
 Climate crises:https://climate.nasa.gov/vital-signs/sea-level/º
 
 Health crisis:https://climate.nasa.gov/vital-signs/sea-level/
