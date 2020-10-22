@@ -1,0 +1,3 @@
+Os 10 mais ricos de Portugal - controlam mais de metade da riqueza: https://www.idealista.pt/news/financas/economia/2019/07/03/40147-os-10-mais-ricos-de-portugal-controlam-mais-de-metade-da-riqueza-total
+
+Descendentes de famílias pobres em Portugal necessitam de "cinco gerações" para alcançarem rendimentos médios?: https://poligrafo.sapo.pt/fact-check/descendentes-de-familias-pobres-em-portugal-necessitam-de-cinco-geracoes-para-alcancarem-rendimentos-medios
