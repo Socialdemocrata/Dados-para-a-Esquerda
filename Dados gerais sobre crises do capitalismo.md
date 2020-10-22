@@ -16,7 +16,11 @@ Just Slavery:https://www.worldwithoutexploitation.org/stats
 
 Exploiting the third world:https://www.oxfam.org/en/press-releases/multinational-companies-cheat-africa-out-billions-dollars
 
-Poverty crisis:http://reducetheburden.org/poverty-facts-and-stats/
+Poverty crisis:
+
+1. http://reducetheburden.org/poverty-facts-and-stats/
+
+2. https://www.globalissues.org/article/4/poverty-around-the-world
 
 Crescimento da pobreza (dismitificar mitos populares sobre a pobreza): https://www.currentaffairs.org/2019/07/5-myths-about-global-poverty
 
