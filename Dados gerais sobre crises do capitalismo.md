@@ -26,6 +26,8 @@ Poverty crisis:
 
 Crescimento da pobreza (dismitificar mitos populares sobre a pobreza): https://www.currentaffairs.org/2019/07/5-myths-about-global-poverty
 
+1. extra, dados oficiais do OWD: https://ourworldindata.org/grapher/distribution-of-population-poverty-thresholds?stackMode=relative
+
 Housing Crisis:USA:https://inthesetimes.com/article/affordable-housing-crisis-rising-rent-homebuyers-market
 
 Queda na taxa de lucro e exploração:https://thenextrecession.wordpress.com/2018/03/07/unam-1-the-profit-investment-nexus/

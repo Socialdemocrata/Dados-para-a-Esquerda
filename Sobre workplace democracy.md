@@ -7,3 +7,5 @@ Internation Co-operative Alliance Resources: https://www.ica.coop/en/online-libr
 Cooperativas a las Américas Estadísticas: https://www.aciamericas.coop/-Estadisticas-cooperativas-
 
 Global Report 2011 (mais de 300 exemplos de cooperativas): https://www.aciamericas.coop/IMG/pdf/global300_report2011.pdf
+
+Cooperativa António Sérgio para a Economia Social: www.cases.pt
